@@ -25,4 +25,3 @@ Fearful that her ailing father will be drafted into the Chinese military, Mulan 
 <img src="https://www.themoviedb.org/t/p/original/AcKVlWaNVVVFQwro3nLXqPljcYA.jpg" width="500" height="600">
 A man and his sister discover something sinister in the skies above their California horse ranch, while the owner of a nearby theme park tries to profit from the mysterious, otherworldly phenomenon.
 
-
